@@ -1,1 +1,0 @@
-# task1_of_foxminded
